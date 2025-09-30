@@ -11,7 +11,7 @@
 
 # Download for free (3-day trial)
 
-▶︎ https://ensili.co/download/wifiradarpro5/wifiradarpro-5.1.zip
+▶︎ https://ensili.co/download/wifiradarpro5/wifiradarpro-5.2.zip
 
 # Official Website
 
